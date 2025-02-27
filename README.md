@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @klayou973
 - 👀 I’m interested in technologie 
-- 🌱 I’m currently learning e coder
+- 🌱 I’m currently learning e codage 
 - 💞️ I’m looking to collaborate on Microsoft 
 - 📫 How to reach me ...
 - 😄 Pronouns: ...
